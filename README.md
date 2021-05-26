@@ -1,1 +1,0 @@
-# NazihahAmnieBintiMohdAris.github.oi
